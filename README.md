@@ -1,4 +1,9 @@
 ### Hi there 👋
+![White Minimalist Profile LinkedIn Banner](https://github.com/SanchanaHR/SanchanaHR/assets/127469995/0c5937c9-9eba-4732-b090-b45b7b1ecafa)
+
+
+
+
 
 <!--
 **SanchanaHR/SanchanaHR** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
